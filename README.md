@@ -1,1 +1,3 @@
 # odev
+
+ÖDEVİN SON HALİDİR
